@@ -1,4 +1,4 @@
-# Privacy Policy for ClockAPX (ClockExtern)
+# Privacy Policy for ClockAPX
 
 Effective date: March 13, 2026
 
